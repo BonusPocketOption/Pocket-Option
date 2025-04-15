@@ -30,6 +30,9 @@ Why Use the 1001PROMO Promo Code Today?
 ✔ More Trading Opportunities – With additional funds, you can trade bigger and diversify your strategies.
 This is a great opportunity to enhance your trading experience and take your strategies to the next level.
 
+![image](https://github.com/user-attachments/assets/b7815cad-2af5-4241-a6f3-6742696e8229)
+
+
 More promocodes:
 
 Low Minimum Deposit – Start trading with as little as $50.
